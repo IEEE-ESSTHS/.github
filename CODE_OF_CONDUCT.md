@@ -49,7 +49,7 @@ representative at an online or offline event.
 
 ## Enforcement
 
-Instances of unacceptable behavior may be reported to the community leaders responsible for enforcement at **[contact@example.com]**.  
+Instances of unacceptable behavior may be reported to the community leaders responsible for enforcement at **[fantar.hichem@gmail.com]**.  
 All complaints will be reviewed and investigated promptly and fairly.
 
 Community leaders are obligated to respect the privacy and security of the
